@@ -1,1 +1,1 @@
-my journey will be great
+i am dedicated to this project and the end must light up 
